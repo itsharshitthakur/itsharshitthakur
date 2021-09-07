@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Harshit
+- 👀 I’m interested in coding and photography.
+- 🌱 I’m currently learning different programming languages.
+- 💞️ I’m looking for internship.
+- 📫 Instagram: @itsharshitthakur
+- 📫 Facebook: @itsharshitthakur
